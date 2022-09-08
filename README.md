@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fotiqft
+- 👋 Hi, We are @fotiqft
 - 👀 We are capable of creating beautiful, performance and SEO friendly WEBSITE
 - 🌱 we are currently open to any projects available
 - 💞️ We are looking to collaborate on any web projects
